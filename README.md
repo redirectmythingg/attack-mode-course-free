@@ -1,4 +1,4 @@
-# Attack Mode by Shwetabh Gangwar
+# Attack Mode Course by Shwetabh Gangwar
 
 Discover how to achieve greatness with **Attack Mode** by Shwetabh Gangwar! Whether you're looking for the **Attack Mode free download**, the **Attack Mode PDF**, or simply the best course to improve your life, you’ve come to the right place.
 
